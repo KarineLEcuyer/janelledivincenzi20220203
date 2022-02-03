@@ -6,3 +6,4 @@ je m'appele Guillaume et je suis un étudiant en multimédia au collège Montmor
 
 J'ai 17 ans et j'aime les jeux vidéos comme Roblox mais j'aime surtout jouer dehors.
 
+j'aime faire de la bicyclette et de l'exploration avec des amis.

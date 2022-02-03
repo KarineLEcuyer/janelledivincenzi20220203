@@ -1,3 +1,3 @@
 # janelledivincenzi20220203
 
-je suis un étudiant au collège Mont-Morency.
+je suis un étudiant en multimédia au collège Mont-Morency.
